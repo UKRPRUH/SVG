@@ -1,0 +1,2 @@
+# Symbols_river_pollution_TarapunkaProject_Poltava_UKR
+Symbols river pollution
